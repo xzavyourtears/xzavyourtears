@@ -1,8 +1,10 @@
-- 👋 Hi, I’m @xzavyourtears
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+XZAVION
+(seyvyon)
+oa. june-gemini. ISTP-T. any terms are okay with me.
 
-<!---
-xzavyourtears/xzavyourtears is a ✨ special ✨ reposi
+address me as Xzav (sav) or any nicknames you want as long as I am comfortable with it and not offensive.
+
+this is my dump account so expect heavy profanities, do not hesitate to unfriend or block me if you're uncomfortable.
+
+anwoniemous link:
+ngl.link/xzavyourtearss
